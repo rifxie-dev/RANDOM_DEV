@@ -1,4 +1,4 @@
-# Hi, I'm Rifqi 👋
+# Hi, I'm RX 👋
 
 🎯 Data Analyst | Banking & ALM Specialist  
 📊 Passionate about Data Analytics  
